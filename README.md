@@ -1,4 +1,4 @@
-# Rabina-gaming-demo
+# Rabina-😊-demo
 This is my first Repository
 <br>
-Author - Rabina (gamer)
+Author - Rabina Vishwakarma (coder)
